@@ -55,7 +55,7 @@ We may update this privacy policy from time to time. When we make significant ch
 
 If you have any questions or suggestions about this privacy policy, please contact us through the following method:
 
-- Email: support@whereareu.app
+- Email: zs525137686@icloud.com
 
 ## Scope of Application
 
